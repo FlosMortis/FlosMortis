@@ -4,5 +4,5 @@
 💞️ I’m looking to collaborate on open source projects or start-ups looking for a passionate front-end developer to bring their ideas to life.
 📫 How to reach me: You can connect with me on LinkedIn at https://www.linkedin.com/in/bmakarov/.
 😄 Pronouns: He/Him/His
-⚡ Fun fact: ⚡ Fun fact: When I'm not coding, I love to immerse myself in sports, especially boxing. I find great joy in teaching boxing classes 
+⚡ Fun fact: When I'm not coding, I love to immerse myself in sports, especially boxing. I find great joy in teaching boxing classes 
  to children, sharing the discipline, focus, and confidence that comes with the sport.
